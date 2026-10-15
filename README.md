@@ -36,3 +36,10 @@
 ### 📜 Certifications & Languages
 
 - 🏆 **TOEIC 580** (English Professional Working Proficiency)
+---
+
+### 📫 Connect with Me
+
+- 📧 **Email:** pvhung13082005@gmail.com
+- 📞 **Phone:** 0862521381
+- 📍 **Location:** Hanoi, Vietnam
